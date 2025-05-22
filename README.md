@@ -6,7 +6,7 @@ My portfolio of evidence for PRP370S
 
 # Career Counselling 
 ## Evidence
-I read through an online career development session which taught me the purpose of setting goals in career_counselling, what the outcome of effective career counselling should be, what the primary goal of career development is, what best describes the concept of career planning and examples of hard skills. I did a test on it as well and I have attached my marks.
+I read through an online career development session which taught me the purpose of setting goals in career counselling, what the outcome of effective career counselling should be, what the primary goal of career development is, what best describes the concept of career planning and examples of hard skills. I did a test on it as well and I have attached my marks.
 
 ![Screenshot 2025-05-22 121408](https://github.com/user-attachments/assets/aa4c93e7-3c59-4002-a4d1-cc5abe57fa68)
 
@@ -104,7 +104,8 @@ After going through the tutorial, I now feel more confident in knowing how to pu
 
 I completed the final step of the CV process by submitting my CV online, as instructed. I followed the proper submission steps and attached the required documents. Below is a screenshot confirming that my CV was successfully submitted.
 
-![Screenshot 2025-05-22 121640](https://github.com/user-attachments/assets/22a109f5-ac6a-4131-85d0-25646d31c828)
+![Screenshot 2025-05-22 145838](https://github.com/user-attachments/assets/1fa7aefd-6922-4dc1-8d31-540816200874)
+
 
 ## STAR Reflection
 
