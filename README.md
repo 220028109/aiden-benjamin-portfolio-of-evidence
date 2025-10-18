@@ -120,3 +120,129 @@ I read a tutorial about submitting CVs, which included steps like reviewing job 
 
 **R – Result:**  
 I now understand how the CV submission process works and what to look out for, like checking for job scams and tailoring applications. This experience made me feel more confident and prepared for future job applications.
+
+---
+
+# Business Communication
+
+## Evidence
+
+I participated in activities and lessons focused on effective business communication, including drafting professional emails, creating concise reports, and improving verbal and written workplace communication. Attached is an example of one of my completed communication exercises.
+
+<img width="456" height="96" alt="business communication" src="https://github.com/user-attachments/assets/4da69ac5-c7cc-413f-ad6a-31109dea5551" />
+
+## STAR Reflection
+
+**S – Situation:**  
+In preparation for the workplace, I needed to improve how I communicate professionally, both in writing and verbally.
+
+**T – Task:** 
+My task was to learn and demonstrate the use of professional tone, structure, and clarity in different business communication formats.
+
+**A – Action:** 
+I practiced writing formal emails, reports, and memos, and took part in peer feedback sessions to refine my style and tone.
+
+**R – Result:**  
+I learned how to communicate clearly, respectfully, and professionally, which will help me in all future workplace interactions.
+
+---
+
+# Interview Skills
+
+## Evidence
+
+I completed a series of lessons and practice sessions on interview preparation, including how to answer common interview questions, use proper body language, and present myself confidently.
+
+<img width="282" height="96" alt="interview skills" src="https://github.com/user-attachments/assets/61443340-c29a-46c8-a226-461f8014255c" />
+
+## STAR Reflection
+
+**S – Situation:**  
+Preparing for interviews can be stressful, especially when you’re unsure what to expect.
+
+**T – Task:** 
+I needed to learn how to prepare for interviews effectively and how to communicate my skills and experience confidently.
+
+**A – Action:** 
+I practiced answering mock interview questions, researched proper body language, and received feedback from my lecturer and peers.
+
+**R – Result:**  
+I feel more confident and ready to handle real interviews. I can now structure my answers clearly using the STAR method and maintain a professional attitude throughout the process.
+
+---
+
+# Mock Interview
+
+## Evidence
+
+I took part in a mock interview exercise where I applied the interview skills learned in class. I dressed appropriately, answered questions confidently, and received constructive feedback on my performance.
+
+<img width="1126" height="141" alt="mock interview" src="https://github.com/user-attachments/assets/d4531d37-8fc3-4f1d-9919-c3466b6d7067" />
+
+## STAR Reflection
+
+**S – Situation:**  
+To simulate a real interview, we participated in a mock interview to apply our skills in a realistic setting.
+
+**T – Task:** 
+My goal was to perform professionally in a mock interview and demonstrate my ability to communicate effectively under pressure.
+
+**A – Action:** 
+I prepared by researching the company I was “interviewing” for, practiced my responses, and focused on maintaining confident body language and tone.
+
+**R – Result:**  
+The feedback I received helped me understand my strengths and areas to improve. I now feel much more prepared for real-world interviews.
+
+---
+
+# Professional Networking
+
+## Evidence
+
+I engaged in an activity focused on building professional networks, including creating a LinkedIn profile and connecting with professionals in my field.
+
+<img width="443" height="96" alt="professional networking" src="https://github.com/user-attachments/assets/805d906e-79dc-4d05-8784-548f1ffad2d6" />
+
+## STAR Reflection
+
+**S – Situation:**  
+Building a professional network is important for finding career opportunities and learning from others in the same industry.
+
+**T – Task:** 
+I needed to learn how to establish and maintain professional relationships using platforms like LinkedIn.
+
+**A – Action:** 
+I created a professional LinkedIn profile, connected with classmates and industry professionals, and learned how to communicate appropriately online.
+
+**R – Result:**  
+I now understand how to use professional networking to expand my career opportunities and maintain a professional online presence.
+
+---
+
+# Workplace Etiquette
+
+## Evidence
+
+I completed lessons and discussions about workplace behaviour, dress code, communication, time management, and teamwork.
+
+<img width="371" height="96" alt="workplace etiquette" src="https://github.com/user-attachments/assets/908828c2-697e-44b3-8b52-4d46c2088bfe" />
+
+## STAR Reflection
+
+**S – Situation:**  
+Understanding workplace etiquette is essential to fit into a professional environment and work effectively with others.
+
+**T – Task:** 
+I needed to learn the expected standards of behaviour and professionalism in the workplace.
+
+**A – Action:** 
+I studied different workplace scenarios, discussed appropriate behaviours, and reflected on how I would handle similar situations.
+
+**R – Result:**  
+I now understand how to behave professionally in various workplace situations. This knowledge will help me adapt easily and maintain a positive reputation wherever I work.
+
+---
+
+# Summary Reflection
+
+Completing these topics has prepared me for entering the professional world with confidence. I’ve learned how to communicate effectively, handle interviews, network professionally, and maintain appropriate behaviour in a workplace setting. Together, these experiences have helped me grow both personally and professionally.
